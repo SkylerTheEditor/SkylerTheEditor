@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SkylerTheEditor
+- 👀 I’m interested in Coding and art, im not very much of a coder yet though.
+- 🌱 I’m currently learning To be focused on a project and actually do something with myself and learn to stay on a topic and concentrate on finishing.
+- 💞️ I’m looking to collaborate on (idk)
+- 📫 How to reach me Email or by discord SkylerPVP#2748 dm me if you need.
